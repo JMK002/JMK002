@@ -2,7 +2,7 @@
 - 👀 I’m interested in Webdesign
 - 🌱 I’m currently learning Business analytic
 - 💞️ I’m looking to collaborate on Project
-- 📫 How to reach me jean_michelkabya@yahoo.fr
+- 📫 How to reach me jean_michelkabeya@yahoo.fr
 - 😄 Pronouns: He
 - ⚡ Fun fact: N/A
 
